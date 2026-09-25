@@ -1,3 +1,3 @@
 # Apnacollege-repo
 first time!
-Author-Darsh Shailesh Kulaaakrni
+Author-Darsh Shailesh Kulkarni
